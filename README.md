@@ -1,6 +1,6 @@
 # Info about us
 
-Hi! We're PerfectHatredSystem, or PHsys, wtv.. We collectively go by Kenny (current host), and use any/all collectively, though we are alter dependant on pronouns. We will only share mental age, not boodily unless close, or needed.
+Hi! We're PerfectHatredSystem, or PHsys, wtv.. We collectively go by Kenny (current host), and use any/all collectively, though we are alter dependant on pronouns. We will only share mental age, not boodily unless close, or needed. We know English only, visiting family in Taiwan.
 
 We don't like interaction usually. Don't expect a reply if you aren't a friend, or we start the conversation. Sorry if this comes off as rude.
 
