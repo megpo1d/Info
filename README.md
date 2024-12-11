@@ -6,6 +6,6 @@ We don't like interaction usually. Don't expect a reply if you aren't a friend, 
 
 Interests: Spookys Jump Scare Mansion, Mouthwashing, ULTRAKILL, BTD/TPOF (Sadly), & drawing
 
-DNI: Racists, pedos, zoos, etc, people who judge others off NOT problematic ships, MOST Hazbin Hotel/Helluva Boss fans, Strade x Ren shippers, Mak & Mari (yk who u r smh), people who are genuinely flirting with us. Joke flirting is ok if you are close.
+DNI: Racists, pedos, zoos, etc, people who judge others off NOT problematic ships, MOST Hazbin Hotel/Helluva Boss fans, Strade x Ren shippers, Mak & Mari (yk who u r smh), people who are genuinely flirting with us. Joke flirting is ok if you are close or we initiate it.
 
 For more info & stuff, check our strawpage and patreon.
